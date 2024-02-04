@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning ... G
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...emailme
-- 😄 Pronouns: ...You wanna suck?
 - ⚡ Fun fact: ...Im just learning
 
 <!---
